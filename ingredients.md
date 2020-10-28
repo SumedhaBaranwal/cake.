@@ -1,0 +1,1 @@
+suji(1 cup),abdominal(meda,1 cup),sugar powder(1.5 cup),refine oil(4 spoon),caradmom powder(1/4 spoon),baking powder(1 spoon),coco powder(3 spoon),egg(2 piece),cream,cerries,dry fruits,chocolate
